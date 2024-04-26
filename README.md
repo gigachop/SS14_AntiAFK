@@ -1,4 +1,4 @@
-# Anti-AFK для Space Station 14 (SS14)
+# AntiAFK для Space Station 14 (SS14)
 
 ## Описание
 
