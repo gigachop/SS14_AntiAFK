@@ -42,3 +42,21 @@
 - Решения AFK для игроков SS14
 - Улучшения для Space Station 14
 - Анти-AFK системы для SS14
+
+## Keyword Search
+- Space Station 14 mods
+- SS14 anti-AFK bot
+- Space Station 14 cheats
+- Space Station 14 gaming tool
+- SS14 utilities
+- Anti-AFK scripts for SS14
+- Space Station 14 guides
+- How to stay active in SS14
+- Anti-AFK program for Space Station 14
+- SS14 player support
+- Tools to improve gameplay in Space Station 14
+- Space Station 14 activity
+- SS14 cheats
+- AFK solutions for SS14 players
+- Enhancements for Space Station 14
+- Anti-AFK systems for SS14
